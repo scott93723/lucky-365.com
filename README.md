@@ -1,1 +1,1 @@
-https://scott93723.github.io/www.lucky-365.com/
+https://scott93723.github.io/lucky-365.com/
